@@ -1,4 +1,4 @@
-#  
+#  Experience my avatar like never before with my avatar updated Scripts, the #1 Script. Includes aimbot and anti-ban for unbeatable performance.
 
 
 
